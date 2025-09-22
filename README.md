@@ -2,4 +2,5 @@
 CLASE 22 DE SEPTIEMBRE CULTURA DIGITAL 1A
 INTEGRANTES
 1-JOSELIN ZUÑIGA NEGRETE 
-lesslie panecatl
+2-lesslie panecatl
+3-Cesar Alberto Olguin Aguilar 
